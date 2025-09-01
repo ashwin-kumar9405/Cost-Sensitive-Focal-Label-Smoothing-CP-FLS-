@@ -89,7 +89,7 @@ Venkat Ashwin Kumar
 
 📧 Email: ashwinkumar092005@gmail.com
 
-🔗 LinkedIn
+
 
 📖 References
 
